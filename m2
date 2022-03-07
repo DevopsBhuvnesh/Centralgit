@@ -1,0 +1,1 @@
+minimum requirement for shahi paneer
