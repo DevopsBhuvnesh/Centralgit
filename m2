@@ -1,1 +1,3 @@
-minimum requirement for shahi paneer
+minimum requirement for shahi paneerpaneer
+tomato
+spices
